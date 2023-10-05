@@ -15,4 +15,4 @@
 
 **_Посилання на соц мережі_**
 
-instagram- https://www.instagram.com/zelenskiy_official/?hl=uk
+instagram- https://www.instagram.com/zelenskiy_official/

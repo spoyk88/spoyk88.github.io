@@ -13,8 +13,7 @@
 
 **_Посилання на проекти_**
 
-1. [Проект 1] (https://github.com/Spoyk9/xmarnitex)
-
+Проект 1 (https://github.com/Spoyk9/xmarnitex)
 
 **_Посилання на соц мережі_**
 

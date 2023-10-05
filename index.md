@@ -13,3 +13,6 @@
 
 **_Посилання на проекти_**
 
+**_Посилання на соц мережі_**
+
+1. (https://www.instagram.com/zelenskiy_official/?hl=uk)
